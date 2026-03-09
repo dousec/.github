@@ -1,1 +1,1 @@
-anti ai slop
+anti ai slop, check discussions if you want updates.
